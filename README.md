@@ -1,1 +1,2 @@
-# Reconstrucci-n-y-crecimiento-econ-mico-de-Francia-1945-1960-
+# Reconstrucción-y-crecimiento-econ-mico-de-Francia-1945-1960-
+La descolonización, la apertura de las fronteras, los modernos medios de comunicación han creado en el mundo entero un deseo de mayor bienestar que exige sin cesar el esfuerzo de la innovación. A pesar de este resurgimiento económico, los problemas del subdesarrollo están lejos de verse resueltos. En los países ricos un mejor conocimiento de los mecanismos económicos y la aplicación de técnicas de previsión permiten a los gobiernos poner en funcionamiento unas políticas económicas mucho más eficaces. 
